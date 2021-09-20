@@ -2,7 +2,7 @@
 
 <br/>
 
-- Eu sou Estagiária de QA na TOTVS JuriTIS 🖱⌨
+- Eu sou Analista QA na TOTVS JuriTIS 🖱⌨
 
 -  Estou cursando Análise de Desenvolvimento de Sistemas 💻👩🏻‍🎓
 
