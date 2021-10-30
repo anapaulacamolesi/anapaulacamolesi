@@ -2,7 +2,7 @@
 
 <br/>
 
-- Eu sou Analista QA na TOTVS JuriTIS 🖱⌨
+- Eu sou Analista de Qualidade de Software(QA) na TOTVS JuriTIs 🖱⌨
 
 -  Estou cursando Análise de Desenvolvimento de Sistemas 💻👩🏻‍🎓
 
