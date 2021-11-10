@@ -2,11 +2,11 @@
 
 <br/>
 
-- Eu sou Analista de Qualidade de Software(QA) na TOTVS JuriTIs 🖱⌨
+- Analista de Qualidade de Software(QA) na TOTVS JuriTIs 🖱⌨
 
--  Estou cursando Análise de Desenvolvimento de Sistemas 💻👩🏻‍🎓
+- Análise de Desenvolvimento de Sistemas 💻👩🏻‍🎓
 
--  São Paulo, Brasil 🇧🇷 
+- São Paulo, 🇧🇷 
 
 
 
