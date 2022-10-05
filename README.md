@@ -2,7 +2,7 @@
 
 <br/>
 
-- Analista de Qualidade de Software(QA) na TOTVS JuriTIs 🖱⌨
+- Analista de Qualidade de Software(QA) na BTG Pactual 🖱⌨
 
 - Análise de Desenvolvimento de Sistemas 💻👩🏻‍🎓
 
